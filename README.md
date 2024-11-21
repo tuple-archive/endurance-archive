@@ -1,1 +1,1 @@
-🗃️ Archive of www.endurance.com
+🗃️ Archive of https://www.endurance.com
